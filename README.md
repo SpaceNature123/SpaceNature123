@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming, astronomy 
 - 🌱 I’m currently learning High school
 - 💞️ I’m looking to collaborate on ...
-- 📫 You can reach me - By taking a spaceship to Anromeda
+- 📫 You can reach me - By taking a spaceship to Andromeda
 - 😄 Pronouns: - 
 - ⚡ Fun fact: - 
 
